@@ -1,4 +1,4 @@
-### Boas vinda ao meu perfil ❤️‍🔥
+### Boas vindo ao meu perfil ❤️‍🔥
 
 Meu nome é Samuel mais pode me chamar de cezar 
 
